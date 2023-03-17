@@ -1,3 +1,5 @@
+This is password of  those systems and platform like duck(search engine of darkweb)who leaks the data related to adhar card and pancard etc
+
 
 # 32 bit system
 
