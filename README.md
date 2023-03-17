@@ -1,3 +1,10 @@
-# hacker-s-descriptio
-hi
-jtgsjhgkhxlgl.x...g.g
+Hacker description
+
+all passwords hacker 32 bit systems 
+
+#3D2W3-8DJM6-YKQRB-B2XDB-TVQHF
+YXF2Y-QRRKR-BFKVQ-RHQ7H-DJPKD
+G2JMP-2PC7G-RYBYX-PPF38-3KKTY
+BMYY7-WH8QJ-6MTWG-MXXVQ-MD97B
+TWHCC-DC33F-G4JJP-BTR2B-RKRYT
+4X7WM-GTH3D-DWVCV-H382J-HPMRD
